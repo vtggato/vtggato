@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @vtggato
+- 👀 I’m interested in ... ser jogador de futebol 
+- 🌱 I’m currently learning ... a viver
+- 💞️ I’m looking to collaborate on ...viver
+- 📫 How to reach me ...anadando  e chegando no  papo
+--->formas de contato insta:_vitinho_cwb_
