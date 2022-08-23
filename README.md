@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vtggato
+- 👋 Hi, I’m @vtg
 - 👀 I’m interested in ... ser jogador de futebol 
 - 🌱 I’m currently learning ... a viver
 - 💞️ I’m looking to collaborate on ...viver
